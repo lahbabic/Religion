@@ -9,6 +9,8 @@ Je suis descendu sur Terre pour comprendre mieu et tester ma création en tant q
 Parce que l'homme se bat contre la folie et la guaïté et la tuerie.
 Les 8 eux sont:
 
+  0 - Eux
+  
   1 - Moi
   
   2 - Les diables et les anges
