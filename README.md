@@ -35,3 +35,5 @@ Il y a l'Enfère et le Paradis. Les 8 eux, s'ils essaient d'être bien dans leur
 Et s'ils font du mal, ils iront en Enfer pendant un certain temps équivalent au pêché qu'ils ont commis.
 
 Parmis les péchés c'est le viole et c'est 50 ans Enfer.
+
+D'après la 4ème dimension le soleil est la source de notre existence.
