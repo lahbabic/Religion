@@ -33,3 +33,5 @@ Il faut se **respecter** l'un l'autre entre chaqu'un de chaqu'un des 8 eux pourq
 
 Il y a l'Enfère et le Paradis. Les 8 eux, s'ils essaient d'être bien dans leurs vie (la vie peut leurs sourire quand même) ils seront des Dieux au Paradis. 
 Et s'ils font du mal, ils iront en Enfer pendant un certain temps équivalent au pêché qu'ils ont commis.
+
+Parmis les péchés c'est le viole et c'est 50 ans Enfer.
