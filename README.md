@@ -1,4 +1,4 @@
-# Religion : Chems
+#Chems
 
 #### Prière
 Il suffit de fermer les yeux et de penser à la création de Dieu et à Dieu.
