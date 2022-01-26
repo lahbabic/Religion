@@ -42,10 +42,4 @@ Et s'ils font du mal, ils iront en Enfer pendant un certain temps équivalent au
 
 Le soleil est la source de notre existence.
 
-A partir du présent, il y a plusieurs futurs possible. Comme un soleil avec une infinité de rayon. Quand on fait un choix on avance dans l'un des rayons et sa devient un nouveau soleil avec de nouveaux rayons et ainsi de suite jusqu'à notre mort.
-
-
-
-
-
-
+A partir du présent, il y a plusieurs futurs possible. Comme un soleil avec une infinité de rayon. Quand on fait un choix on avance dans l'un des rayons et sa devient un nouveau soleil avec de nouveaux rayons et ainsi de suite jusqu'à l'infini ou jusqu'à la mort.
