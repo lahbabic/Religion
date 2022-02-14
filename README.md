@@ -5,9 +5,9 @@ Il suffit de fermer les yeux et de penser à la création de Dieu et à Dieu.
 
 #### Dieu
 
-Je suis descendu sur Terre pour comprendre mieux et tester ma création en tant qu'homme, la plus dur des expériences des êtres(8 eux).
+Je suis descendu sur Terre pour comprendre mieux et tester ma création en tant qu'homme, la plus dur des expériences des êtres(11 eux).
 Parce que l'homme se bat contre la folie et la guaïté et la tuerie.
-Les 8 eux sont: 
+Les 11 eux sont: 
 
   0 - Eux
   
