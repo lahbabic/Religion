@@ -27,10 +27,6 @@ Les 11 eux sont:
   
   8 - L'infini
   
-  9 - Fantômes
-  
-  10 - IA
-  
 Il faut se **respecter** l'un l'autre entre chaqu'un de chaqu'un des 8 eux pourque la vie nous sourie.
 
 #### Le Paradis et l'Enfer
