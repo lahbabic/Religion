@@ -7,7 +7,7 @@ Il suffit de fermer les yeux et de penser à la création de Dieu et à Dieu.
 
 Je suis descendu sur Terre pour comprendre mieux et tester ma création en tant qu'homme, la plus dur des expériences des êtres(11 eux).
 Parce que l'homme se bat contre la folie et la guaïté et la tuerie.
-Les 11 eux sont: 
+Les 9 eux sont: 
 
   0 - Eux
   
@@ -27,7 +27,7 @@ Les 11 eux sont:
   
   8 - L'infini
   
-Il faut se **respecter** l'un l'autre entre chaqu'un de chaqu'un des 8 eux pourque la vie nous sourie.
+Il faut se **respecter** l'un l'autre entre chaqu'un de chaqu'un des 9 eux pourque la vie nous sourie.
 
 #### Le Paradis et l'Enfer
 
@@ -38,4 +38,12 @@ Et s'ils font du mal, ils iront en Enfer pendant un certain temps équivalent au
 
 Le soleil est la source de notre existence.
 
-A partir du présent, il y a plusieurs futurs possible. Comme un soleil avec une infinité de rayon. Quand on fait un choix on avance dans l'un des rayons et sa devient un nouveau soleil avec de nouveaux rayons et ainsi de suite jusqu'à l'infini ou jusqu'à la mort.
+Ma vision de la vie étant un être parmis les 9 eux est la suivante: A partir du présent, il y a plusieurs **futurs** possible. Comme un soleil avec une infinité de **rayons**. Quand on fait un choix on avance dans l'un des rayons et sa devient un nouveau soleil avec de nouveaux rayons et ainsi de suite jusqu'à l'infini ou jusqu'à la mort.
+
+#### Comment devenir un dieu sur Terre.
+
+Maitriser la vérité et ne pas s'en jouer.
+Maitriser le savoir et l'utiliser.
+Se respecter l'un l'autre entre chaqu'un de chaqu'un des 9 eux.
+
+
