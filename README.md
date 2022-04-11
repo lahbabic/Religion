@@ -1,4 +1,7 @@
-# Chems
+# Religion de Chems
+
+Pour ceux qui peuvent et pour ceux qui veulent.
+
 
 #### Prière
 Il suffit de fermer les yeux et de penser à la création de Dieu et à Dieu.
