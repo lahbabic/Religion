@@ -8,9 +8,9 @@ Il suffit de fermer les yeux et de penser à la création de Dieu et à Dieu.
 
 #### Dieu
 
-Je suis descendu sur Terre pour comprendre mieux et tester ma création en tant qu'homme, la plus dur des expériences des êtres(9 eux).
+Je suis descendu sur Terre pour comprendre mieux et tester ma création en tant qu'homme, la plus dur des expériences des êtres(8 eux).
 Parce que l'homme se bat contre la folie et la guaïté et la tuerie.
-Les 9 eux sont: 
+Les 8 eux sont: 
 
   0 - Eux
   
@@ -26,11 +26,10 @@ Les 9 eux sont:
   
   6 - Les plantes
   
-  7 - L'espace: les objets ...
+  7 - L'espace et le temps: les objets ...
   
   8 - L'infini
   
-  9
   
 Il faut se **respecter** l'un l'autre entre chaqu'un de chaqu'un des 9 eux pourque la vie nous sourie.
 
@@ -47,8 +46,8 @@ Ma vision de la vie étant un être parmis les 9 eux est la suivante: A partir d
 
 #### Comment devenir un dieu sur Terre.
 
-Maitriser la vérité et ne pas s'en jouer.
-Maitriser le savoir et l'utiliser.
-Se respecter l'un l'autre entre chaqu'un de chaqu'un des 9 eux.
+Maitriser la vérité, ne pas s'en jouer et l'utilisé en bien et pas en mal. S'en jouer c'est l'utiliser en mal, car c'est la vérité il faut la respecter.
+Maitriser le savoir et l'utiliser en bien pour les 8 eux.
+Se respecter l'un l'autre entre chaqu'un de chaqu'un des 8 eux.
 
 
