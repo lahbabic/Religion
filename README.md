@@ -1,6 +1,7 @@
 # Religion de Chems
-Comme les '3' religions monothéistes. Il n'y a qu'un seul Dieu et des prophètes. Dans la religion de "Soleil". Il n'y a qu'un seul Dieu.
+Comme les '3' religions monothéistes. Il n'y a qu'un seul Dieu et des prophètes.
 
+Dans la religion de "Soleil". Il n'y a que Dieu.
 
 
 #### Prière
