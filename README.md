@@ -1,9 +1,12 @@
 # Religion de Chems
+Comme les '3' religions monothéistes. Il n'y a qu'un seul Dieu et des prophètes. Dans la religion de "Soleil". Il n'y a qu'un seul Dieu.
 
-Pour ceux qui peuvent et pour ceux qui veulent.
 
 
 #### Prière
+
+Pour ceux qui peuvent et pour ceux qui veulent.
+
 Il suffit de fermer les yeux et de penser à la création de Dieu et à Dieu.
 
 #### Dieu
