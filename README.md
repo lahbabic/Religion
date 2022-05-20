@@ -30,7 +30,7 @@ Les 8 eux sont:
   
   6 - Les plantes
   
-  7 - L'espace et le temps: les objets ...
+  7 - L'espace et le temps: les objets dans la 3 ème dimension, et dans la [4D](https://github.com/lahbabic/4th-dimension), ...
   
   8 - L'infini
   
